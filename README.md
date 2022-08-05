@@ -1,2 +1,2 @@
 # codewill
-all rights reserved.. by my steel first 👊
+all rights reserved.. by my steel fist 👊
