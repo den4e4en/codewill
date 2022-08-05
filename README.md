@@ -1,3 +1,2 @@
 # codewill
-all rights reserved.. by me 	
-&#128513;
+all rights reserved.. by me &#128513;
