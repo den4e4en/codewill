@@ -1,2 +1,2 @@
 # codewill
-here is my shitty codes. but in the future adecvate code_will be here 
+here is my shitty codes. but in the future adecvate codewill be here 
